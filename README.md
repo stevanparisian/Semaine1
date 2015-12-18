@@ -11,5 +11,4 @@ de mon groupe The Parisians.
 
 ## Pourquoi je suis sur Simplonline ?  
 
-je suis passioné et je veux apprendre le maximum de choses.  
-test
+je suis passioné et je veux apprendre le maximum de choses.
